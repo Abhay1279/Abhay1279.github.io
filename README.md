@@ -1,0 +1,1 @@
+I developed my personal portfolio website to showcase my skills, projects, and achievements in civil engineering, UI/UX design, and event management. The website is designed to provide a seamless user experience, reflecting my professional growth and offering easy access to my work and accomplishments.
